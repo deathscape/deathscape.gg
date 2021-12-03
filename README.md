@@ -1,2 +1,2 @@
 # deathscape.gg
-trustin filth
+trust in filth
